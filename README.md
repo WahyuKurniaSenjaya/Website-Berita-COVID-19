@@ -1,2 +1,3 @@
-# Website-Berita-COVID-19
-Ini adalah website Covid-19
+Wahyu Kurnia Senjaya
+20200121016
+Sistem informasi 1/2
