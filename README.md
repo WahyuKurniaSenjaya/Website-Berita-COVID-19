@@ -1,3 +1,1 @@
-Wahyu Kurnia Senjaya
-20200121016
-Sistem informasi 1/2
+Wahyu Kurnia Senjaya - 20200121016 - Sistem informasi 1/2
